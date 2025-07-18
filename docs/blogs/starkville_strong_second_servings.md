@@ -1,6 +1,6 @@
 # Hi!
 
-In this post, I wanted to spotlight a local organization:
+In this post, I wanted to spotlight a local Starkville organization:  
 [Starkville Strong](https://www.starkvillestrong.org/)
 
 Starkville Strong is a local nonprofit providing support for Starkville residents to help with food insecurity, homelessness, housing insecurity and community advocacy. 
